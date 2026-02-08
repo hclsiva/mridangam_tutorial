@@ -2,17 +2,11 @@
 
 ## Sloka to recite.
 
-`Namo Jaganatha suthaya`
+`Namo Jaganatha suthaya. Namo Mridangaya namaha.`
 
-`Namo Mridangaya namaha`
+`Lavanya rasa Madhuri. Sahasra guna samyuktham.`
 
-`Lavanya rasa Madhuri`
-
-`Sahasra guna samyuktham`
-
-`Namo Mridangaya Namo Namaha`
-
-`Namo Baladevaya Namo Namaha`
+`Namo Mridangaya Namo Namaha. Namo Baladevaya Namo Namaha.`
 
 ## Strokes
 
